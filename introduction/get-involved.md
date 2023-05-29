@@ -10,7 +10,7 @@ You have a few options:
 
 * Twitter - tag in comments or send a DM to the official CT History profile:
   * [@history\_of\_ct](https://twitter.com/history\_of\_ct)
-* Twitter - tag in comments send a DM directly to the CT Historian:
+* Twitter - tag in comments or send a DM directly to the CT Historian:
   * [@always\_kind\_man](https://twitter.com/always\_kind\_man)
 * Send it by email to:
   * historian.ct@gmail.com
