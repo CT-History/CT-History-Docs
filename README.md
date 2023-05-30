@@ -10,7 +10,7 @@ Okay, guys, hear me out. I have a serious question.
 
 The culture and lore of CT is something truly unique. There have been hundreds, if not thousands, of amazing and hilarious moments.
 
-What happens when we inevitably dump our bags on the institutions, we all find wives and reitre?
+What happens when we inevitably dump our bags on the institutions, we all find wives and retire?
 
 With our deteriorating brain cells, how long will we really remember all this?
 
